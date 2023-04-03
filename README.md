@@ -1,3 +1,3 @@
 # Bermuda
 
-![Certificate_Crypto Triangle (Bermuda)](https://user-images.githubusercontent.com/81981737/169881034-bea216b9-440d-45f1-b837-db15a8507719.jpg)
+![bermuda](https://user-images.githubusercontent.com/121312707/229456598-1e8c3393-4bed-4c7f-95c4-f4dcac53a33e.png)
